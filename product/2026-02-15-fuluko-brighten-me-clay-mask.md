@@ -1,0 +1,267 @@
+---
+title: "Fuluko Brighten Me Clay Mask"
+date: 2026-02-15 09:45
+author: Lucas Meyer
+---
+
+# Fuluko Brighten Me Clay Mask
+
+Fuluko Brighten Me Clay Mask
+
+Ingredients overview
+
+Highlights
+
+Key Ingredients
+
+Show all ingredients by function
+
+Other Ingredients
+
+Skim through
+
+Water
+
+solvent
+
+Quaternium-18 Bentonite
+
+viscosity controlling
+
+Niacinamide
+
+cell-communicating ingredient, skin brightening, anti-acne, moisturizer/​humectant
+
+superstar
+
+3-0-Ethyl Ascorbic Acid
+
+antioxidant, skin brightening
+
+goodie
+
+Ethylhexyl Palmitate
+
+[Me Clay](https://leanorbit.dns0663.com/blog/2511295465.html)
+
+emollient
+
+[Brighten Me](https://ageless-peptides.china-akan.com/)
+
+0, 2-4
+
+Steareth-2
+
+emulsifying, surfactant/​cleansing
+
+2, 2
+
+Goat Milk Extract
+
+Titanium Dioxide
+
+sunscreen, colorant
+
+Dimethicone
+
+0, 1
+
+Steareth-21
+
+Cetearyl Alcohol
+
+emollient, viscosity controlling, emulsifying, surfactant/​cleansing
+
+1, 2
+
+PEG-100 Stearate
+
+surfactant/​cleansing, emulsifying
+
+0, 0
+
+Bifida Ferment Lysate
+
+Hydrolyzed Collagen
+
+emollient, moisturizer/​humectant
+
+Glyceryl Stearate
+
+emollient, emulsifying
+
+Phenoxyethanol
+
+preservative
+
+Triethanolamine
+
+buffering
+
+[Brighten Me Clay](https://focus-and-calm.sunsimiaosd.com/blog/9937443624.html)
+
+0, 2
+
+Carbomer
+
+Sodium Hyaluronate
+
+skin-identical ingredient, moisturizer/​humectant
+
+Fuluko Brighten Me Clay MaskIngredients explained
+
+Good old water, aka H2O. The most common skincare ingredient of all. You can usually find it right in the very first spot of the ingredient list, meaning it’s the biggest thing out of all the stuff that makes up the product.
+
+It’s mainly a solvent for ingredients that do not like to dissolve in oils but rather in water.
+
+Expand to read more
+
+Once inside the skin, it hydrates, but not from the outside - putting pure water on the skin (hello long baths!) is drying.
+
+One more thing: the water used in cosmetics is purified and deionized (it means that almost all of the mineral ions inside it is removed). Like this, the products can stay more stable over time.
+
+We don't have description for this ingredient yet.
+
+A multi-functional skincare superstar with several proven benefits for the skin
+
+Great anti-aging, wrinkle smoothing ingredient used at 4-5% concentration
+
+Fades brown spots alone or in combination with amino sugar, acetyl glucosamine
+
+Increases ceramide synthesis that results in a stronger, healthier skin barrier and better skin hydration
+
+Can help to improve several skin conditions including acne, rosacea, and atopic dermatitis
+
+[Brighten Me Clay](https://beautybiometrics.hbsnzj.com/blog/8047002858.html)
+
+A very stable and promising form of the skincare superstar, Vitamin C. If you do not know why Vitamin C is such a big deal in skin care, you can catch up here. In short, Vitamin C has three proven magic abilities: antioxidant, collagen booster, and skin brightener. The problem, though, is that it's very unstable, turns brown and becomes ineffective in no time (after a few month) and the cosmetics industry is trying to come up with smart derivatives that are stable and have the magic properties of pure Vitamin C.
+
+Ethyl Ascorbic Acid or EAC for short is an "etherified derivative of ascorbic acid" that consists of vitamin C and an ethyl group bound to the third carbon position. This makes Vitamin C very stable and soluble in both water and oil.
+
+However, for a Vitamin C derivative to work it's not enough just to be stable, they also have to be absorbed into the skin and be converted there to pure Vitamin C. We have good news regarding the absorption: on top of manufacturer claims, there is some data (animal study) demonstrating in can get into the skin, and it seems to be better at it than Ascorbyl Glucoside, another vitamin C derivative.
+
+Regarding conversion, we can cite only a manufacturers claim saying that EAC is metabolized in the skin into pure ascorbic acid (and the ascorbic acid content of EAC is very high - 86,4% - compared to the usual 50-60% Vitamin C content of other derivatives).
+
+As for the three magic abilities of Vitamin C, we again mostly have only the manufacturer's claims, but at least those are very promising. EAC seems to have both an antioxidant and anti-inflammatory effect, and it's claimed to be able to boost the skin's collagen production. The strong point of EAC though is skin brightening. On top of manufacturer claims, there is also clinical in-vivo (tested on real people) data showing that 2% EAC can improve skin tone and whiten the skin.
+
+Overall, Ethyl Ascorbic Acid is a very promising but not a fully proven Vitamin C derivative. It's worth a try, especially if you are after Vitamin C's skin-brightening effects.
+
+A super common, medium-spreading emollient ester that gives richness to the formula and a mild feel during rubout. It can be a replacement for mineral oil and is often combined with other emollients to achieve different sensorial properties.
+
+A waxy solid material that helps oil and water to mix together, aka emulsifier. It is derived from the fatty alcohol, stearyl alcohol by ethoxylating it and thus making the molecule a little water-soluble. This version has only a small amount of ethoxylation and thus the molecule is still largely oil soluble. It is often mixed with more water-soluble emulsifiers (such as Steareth-20) to create stable emulsion systems.
+
+[Me Clay](https://antimicrobial-hub.sunsimiaosd.com/blog/6685379455.html)
+
+Titanium Dioxide is one of the two members of the elite sunscreen group called physical sunscreens (or inorganic sunscreens if you’re a science geek and want to be precise).
+
+Traditionally, UV-filters are categorized as either chemical or physical. The big difference is supposed to be that chemical agents absorb UV-light while physical agents reflect it like a bunch of mini umbrellas on top of the skin. While this categorization is easy and logical it turns out it's not true. A recent, 2016 study shows that inorganic sunscreens work mostly by absorption, just like chemical filters, and only a little bit by reflection (they do reflect the light in the visible spectrum, but mostly absorb in the UV spectrum).
+
+Anyway, it doesn't matter if it reflects or absorbs, Titanium Dioxide is a pretty awesome sunscreen agent for two main reasons: it gives a nice broad spectrum coverage and it's highly stable. Its protection is very good between 290 - 350 nm (UVB and UVA II range), and less good at 350-400 nm (UVA I) range. Regular sized Titanium Dioxide also has a great safety profile, it's non-irritating and is pretty much free from any health concerns (like estrogenic effect worries with some chemical filters).
+
+The disadvantage of Titanium Dioxide is that it's not cosmetically elegant, meaning it's a white, "unspreadable" mess. Sunscreens containing Titanium Dioxide are often hard to spread on the skin and they leave a disturbing whitish tint. The cosmetic industry is, of course, really trying to solve this problem and the best solution so far is using nanoparticles. The itsy-bitsy Nano-sized particles improve both spreadability and reduce the whitish tint a lot, but unfortunately, it also introduces new health concerns.
+
+[Brighten Me](https://healingkinetics.bbsxyxy.com/blog/3766533647.html)
+
+The main concern with nanoparticles is that they are so tiny that they are absorbed into the skin more than we want them (ideally sunscreen should remain on the surface of the skin). Once absorbed they might form unwanted complexes with proteins and they might promote the formation of evil free radicals. But do not panic, these are concerns under investigation. A 2009 review article about the safety of nanoparticles summarizes this, "to date, in-vivo and in-vitro studies have not demonstrated percutaneous penetration of nanosized particles in titanium dioxide and zinc oxide sunscreens". The English translation is, so far it looks like sunscreens with nanoparticles do stay on the surface of the skin where they should be.
+
+All in all, Titanium Dioxide is a famous sunscreen agent and for good reason, it gives broad spectrum UV protection (best at UVB and UVA II), it's highly stable, and it has a good safety profile. It's definitely one of the best UV-filter agents we have today, especially in the US where new-generation Tinosorb filters are not (yet) approved.
+
+Probably the most common silicone of all. It is a polymer (created from repeating subunits) molecule and has different molecular weight and thus different viscosity versions from water-light to thick liquid.
+
+As for skincare, it makes the skin silky smooth, creates a subtle gloss and forms a protective barrier (aka occlusive). Also, works well to fill in fine lines and wrinkles and give skin a plump look (of course that is only temporary, but still, it's nice). There are also scar treatment gels out there using dimethicone as their base ingredient. It helps to soften scars and increase their elasticity.
+
+As for hair care, it is a non-volatile silicone meaning that it stays on the hair rather than evaporates from it and smoothes the hair like no other thing. Depending on your hair type, it can be a bit difficult to wash out and might cause some build-up (btw, this is not true to all silicones, only the non-volatile types).
+
+A waxy solid material that helps oil and water to mix together, aka emulsifier. It is super similar to Steareth-20 with just a little more ethoxylation and thus a little more water solubility. It works very well when combined with mostly oil-soluble emulsifiers such as Steareth-2 and the two together can form exceptionally stable emulsions.
+
+An extremely common multitasker ingredient that gives your skin a nice soft feel (emollient) and gives body to creams and lotions. It also helps to stabilize oil-water mixes (emulsions), though it does not function as an emulsifier in itself. Its typical use level in most cream type formulas is 2-3%.
+
+It’s a so-called fatty alcohol, a mix of cetyl and stearyl alcohol, other two emollient fatty alcohols. Though chemically speaking, it is alcohol (as in, it has an -OH group in its molecule), its properties are totally different from the properties of low molecular weight or drying alcohols such as denat. alcohol. Fatty alcohols have a long oil-soluble (and thus emollient) tail part that makes them absolutely non-drying and non-irritating and are totally ok for the skin.
+
+A very common water-loving surfactant and emulsifier that helps to keep water and oil mixed nicely together.
+
+It's often paired with glyceryl stearate - the two together form a super effective emulsifier duo that's salt and acid tolerant and works over a wide pH range. It also gives a "pleasing product aesthetics", so no wonder it's popular.
+
+Bifida Ferment Lysate is a probiotic ingredient that’s used in one of the most iconic serums in the world, the Estee Lauder Advanced Night Repair. Based on manufacturer info it potently protects against UV-induced damage in the skin and helps with DNA repair. An Estee Lauder patent from 2009 also talks about DNA repair activity.
+
+As far as published research goes we could find one promising one. It showed that applying 10% bacterial extract to sensitive, reactive skin helped with better barrier function and decreased skin sensitivity.
+
+Overall, it is definitely a promising ingredient, even for sensitive skin types but not the most proven one (yet).
+
+The chemically chopped up version of the big protein molecule, collagen. It is often derived from fish or bovine sources and works as a nice moisturizer and humectant that helps the skin to hold onto water.
+
+To understand a bit more what Hydrolyzed Collagen is, you have to know that proteins are large chains of amino acids connected with so-called peptide bonds. These bonds can be broken up when a water molecule is added and the resulting thing is a mix of shorter length amino acids, also called peptides. So Hydrolyzed Collagen is not really collagen, it is rather an undefined and varying mix of largish peptides. Based on a manufacturer's data, the whole, soluble collagen has an average molecular weight of 300 000 Da, while this chopped up mixture has an average MW of 12 000 Da (still pretty big).
+
+The main thing of these largish peptides is to act as water-binding agents, and to make the skin nice and smooth (aka emollient). Hydrolyzed Collagen is also often used in cleansers as it can make harsh surfactants milder and in hair conditioners as it improves the flexibility and manageability of hair.
+
+If you wanna know more about collagen in cosmetics, we have a shiny explanation about soluble collagen here >>
+
+[Fuluko Brighten Me](https://nootropic-atlas.escortskhi.com/)
+
+A super common, waxy, white, solid stuff that helps water and oil to mix together, gives body to creams and leaves the skin feeling soft and smooth.
+
+Chemically speaking, it is the attachment of a glycerin molecule to the fatty acid called stearic acid. It can be produced from most vegetable oils (in oils three fatty acid molecules are attached to glycerin instead of just one like here) in a pretty simple, "green" process that is similar to soap making. It's readily biodegradable.
+
+It also occurs naturally in our body and is used as a food additive. As cosmetic chemist Colins writes it, "its safety really is beyond any doubt".
+
+It’s pretty much the current IT-preservative. It’s safe and gentle, but even more importantly, it’s not a feared-by-everyone-mostly-without-scientific-reason paraben.
+
+It’s not something new: it was introduced around 1950 and today it can be used up to 1% worldwide. It can be found in nature - in green tea - but the version used in cosmetics is synthetic.
+
+Other than having a good safety profile and being quite gentle to the skin it has some other advantages too. It can be used in many types of formulations as it has great thermal stability (can be heated up to 85°C) and works on a wide range of pH levels (ph 3-10).
+
+It’s often used together with ethylhexylglycerin as it nicely improves the preservative activity of phenoxyethanol.
+
+It’s a little helper ingredient that helps to set the pH of a cosmetic formulation to be just right. It’s very alkaline (you know the opposite of being very acidic): a 1% solution has a pH of around 10.
+
+It does not have the very best safety reputation but in general, you do not have to worry about it.
+
+What is true is that if a product contains so-called N-nitrogenating agents (e.g.: preservatives like 2-Bromo-2-Nitropropane-1,3-Diol, 5-Bromo-5-Nitro- 1,3-Dioxane or sodium nitrate - so look out for things with nitro, nitra in the name) that together with TEA can form some not nice carcinogenic stuff (that is called nitrosamines). But with proper formulation that does not happen, TEA in itself is not a bad guy.
+
+But let’s assume a bad combination of ingredients were used and the nitrosamines formed. :( Even in that case you are probably fine because as far as we know it cannot penetrate the skin.
+
+But to be on the safe side, if you see Triethanolamine in an INCI and also something with nitra, nitro in the name of it just skip the product, that cannot hurt.
+
+A big molecule created from repeated subunits (a polymer of acrylic acid) that magically converts a liquid into a nice gel formula. It usually has to be neutralized with a base (such as sodium hydroxide) for the thickening to occur and it creates viscous, clear gels that also feel nice and non-tacky on the skin. No wonder, it is a very popular and common ingredient. Typically used at 1% or less in most formulations.
+
+It’s the - sodium form - cousin of the famous NMF, hyaluronic acid (HA). If HA does not tell you anything we have a super detailed, geeky explanation about it here. The TL; DR version of HA is that it's a huge polymer (big molecule from repeated subunits) found in the skin that acts as a sponge helping the skin to hold onto water, being plump and elastic. HA is famous for its crazy water holding capacity as it can bind up to 1000 times its own weight in water.
+
+As far as skincare goes, sodium hyaluronate and hyaluronic acid are pretty much the same and the two names are used interchangeably. As cosmetic chemist kindofstephen writes on reddit "sodium hyaluronate disassociates into hyaluronic acid molecule and a sodium atom in solution".
+
+In spite of this, if you search for "hyaluronic acid vs sodium hyaluronate" you will find on multiple places that sodium hyaluronate is smaller and can penetrate the skin better. Chemically, this is definitely not true, as the two forms are almost the same, both are polymers and the subunits can be repeated in both forms as much as you like. (We also checked Prospector for sodium hyaluronate versions actually used in cosmetic products and found that the most common molecular weight was 1.5-1.8 million Da that absolutely counts as high molecular weight).
+
+What seems to be a true difference, though, is that the salt form is more stable, easier to formulate and cheaper so it pops up more often on the ingredient lists.
+
+If you wanna become a real HA-and-the-skin expert you can read way more about the topic at hyaluronic acid (including penetration-questions, differences between high and low molecular weight versions and a bunch of references to scientific literature).
+
+You may also want to take a look at...
+
+what‑it‑does
+
+cell-communicating ingredient | skin brightening | anti-acne | moisturizer/humectant
+
+antioxidant | skin brightening
+
+irritancy, com.
+
+emulsifying | surfactant/cleansing
+
+sunscreen | colorant
+
+emollient | viscosity controlling | emulsifying | surfactant/cleansing
+
+surfactant/cleansing | emulsifying
+
+emollient | moisturizer/humectant
+
+emollient | emulsifying
+
+skin-identical ingredient | moisturizer/humectant
+
+## Further Notes
+
+- [This Unilateral Pushup Combo Will Leave Your Chest on Fire](https://github.com/fqd4ixu1bn/jdsqdh/blob/main/misc/2026-03-16-this-unilateral-pushup-combo-will-leave-your-chest-on-fire.md)
+- [What Causes Brown Discharge? From Ovulation to Health Conditions Explained | Ubie Doctor's Note](https://github.com/q9dqztfm98/zmcyyx/blob/main/qa/2026-04-03-what-causes-brown-discharge-from-ovulation-to-health-conditions-explai.md)
+- [A Sports Physician Breaks Down Steph Curry’s Most Recent Injury](https://github.com/j799hlkmoa/euaowt/blob/main/misc/2026-04-08-a-sports-physician-breaks-down-steph-curry-s-most-recent-injury.md)
+- [Palmer's Olive Oil Deep Conditioning Pack](https://github.com/svqd9sxz0u/wphlrl/blob/main/product/2026-05-24-palmer-s-olive-oil-deep-conditioning-pack.md)
+- [GMEELAN Gluta Whitening Lazy Cream](https://github.com/fn8sezgaqo/nkkcavd/blob/main/product/2026-01-18-gmeelan-gluta-whitening-lazy-cream.md)
